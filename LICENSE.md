@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new coin sniper bot with AI-powered Executor for new coin sniper bot | trailing-stop & stop-loss. Featuring trailing-stop and stop-loss, it's the best choice for
 
 
 
